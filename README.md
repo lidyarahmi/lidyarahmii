@@ -1,4 +1,4 @@
-# Hi there 🖐️
+# Hi👋 I'm Lidya.
 
 Perkenalkan nama saya **Lidya Rahmi**.\
 Saya seorang student di **Bangkit**.\
